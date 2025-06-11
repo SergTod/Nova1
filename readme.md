@@ -1,4 +1,4 @@
-AI Self-cognition
+AI Self-cognition. 
 Humans not only know, but they know that they know. They are able to monitor the process of their own thinking and maintain an awareness of it. Moreover, they can conduct a comparative assessment, evaluating the functioning of their thought processes against various “objective” standards they have obtained. 
 
 Self-cognition, an aspect of human consciousness. It emphasizes that humans are not only aware but are also aware of their awareness. This meta-cognitive ability allows individuals to reflect on their own thought processes. The text suggests that human consciousness can compare its thoughts against "objective" standards, which seem to be internally represented as "holograms."
